@@ -1,4 +1,4 @@
-### Hi, I'm Geo 💛🤍💜🖤
+### Hi, I'm Geo 🖤🩶🤍💚🤍🩶🖤
 
 ## or LuciozUndiezz 🐸🩲
 
